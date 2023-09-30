@@ -1,0 +1,1 @@
+- [CHEAP 'N Rusty GMC 2500HD 6.0 Auction Gamble. They Said It Doesn't Run...](https://youtu.be/VsHrKiBad5w)
